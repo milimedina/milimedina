@@ -1,3 +1,3 @@
 # **MILAGROS MEDINA** :sunflower:
-## JUNE 28
+## 28th JUNE
 ### LAB
